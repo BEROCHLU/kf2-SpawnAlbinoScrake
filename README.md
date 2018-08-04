@@ -1,1 +1,1 @@
-<https://steamcommunity.com/sharedfiles/filedetails/?id=665349986>
+https://steamcommunity.com/sharedfiles/filedetails/?id=665349986
